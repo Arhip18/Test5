@@ -4,7 +4,7 @@
 
 -----
 
-<p align="center"><img src="https://w.forfun.com/fetch/fb/fbd549d62ef367e417dbf02910d8d6b6.jpeg" width="400"></p> 
+<p align="center"><img src="https://www.kleo.ru/img/news/533/53380-1100x733.jpeg" width="400"></p> 
 
 <p><a href="https://youtu.be/pF44s06XOJ0?si=2ZeCGlmM1YbcmC3R">ССылка</a></p>
 
