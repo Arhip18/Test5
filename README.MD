@@ -4,7 +4,7 @@
 
 -----
 
-<p align="center"><img src="https://catherineasquithgallery.com/uploads/posts/2021-02/1614339517_11-p-svetloe-nebo-fon-11.jpg" width="400"></p> 
+<p align="center"><img src="https://w.forfun.com/fetch/fb/fbd549d62ef367e417dbf02910d8d6b6.jpeg" width="400"></p> 
 
 <p><a href="https://youtu.be/pF44s06XOJ0?si=2ZeCGlmM1YbcmC3R">ССылка</a></p>
 
